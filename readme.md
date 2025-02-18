@@ -1,0 +1,1 @@
+Talentyze Candidate Page
